@@ -28,5 +28,5 @@ All about me: <br> ♡　My name is Kang! I still often go by Kei/Deutra though!
 
 <div align="center">
   
-[![strawpage!](https://watermelon.crd.co/assets/images/gallery07/e5932a66.gif?v=e2e5e274 "Go to Kei's strawpage?!")](https://giftforkei.straw.page)
+[![strawpage!](https://watermelon.crd.co/assets/images/gallery07/e5932a66.gif?v=e2e5e274 "Go to Kei's strawpage?!")](https://keidenosinetriphosphate.straw.page)
 </div>
