@@ -1,3 +1,9 @@
+
+<div align="center"> 
+
+![yay!](https://komarev.com/ghpvc/?username=your-DeuteragonistIllusion) 
+</div>
+
 <div align="center">
   
 ## ![:3](https://watermelon.crd.co/assets/images/gallery22/9ce10986.gif?v=e2e5e274) ![..](https://watermelon.crd.co/assets/images/gallery22/ac77cc1b.gif?v=e2e5e274) ![wee](https://watermelon.crd.co/assets/images/gallery07/cd2287c3.gif?v=e2e5e274) ![XD](https://watermelon.crd.co/assets/images/gallery22/0d2afc31.gif?v=e2e5e274)
