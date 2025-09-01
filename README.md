@@ -20,4 +20,4 @@
 
 #
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Story+Script&size=15&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=this+is+super+lame+sorry)](https://git.io/typing-svg) <br> [![Typing SVG](https://readme-typing-svg.demolab.com?font=Story+Script&size=15&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=ALSO+CREDITS+TO+USER+SHINMINASE;THEYRE+REALLY+COOL+GO+CHECK+THEM+OUT)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Story+Script&size=15&pause=1000&color=F7F7F7&center=true&vCenter=true&width=1000&lines=this+is+super+lame+sorry)](https://git.io/typing-svg) <br> [![Typing SVG](https://readme-typing-svg.demolab.com?font=Story+Script&size=15&pause=1000&color=F7F7F7&center=true&vCenter=true&width=1000&lines=ALSO+CREDITS+TO+USER+SHINMINASE;THEYRE+REALLY+COOL+GO+CHECK+THEM+OUT)](https://git.io/typing-svg)
