@@ -1,7 +1,7 @@
 
 <div align="center"> 
 
-![yay!](https://komarev.com/ghpvc/?username=your-DeuteragonistIllusion&label=patient&color=F7B32B&base=1234&style=for-the-badge)
+![yay!](https://komarev.com/ghpvc/?username=your-DeuteragonistIllusion&label=patient&color=000000&base=1234&style=for-the-badge)
 </div>
 
 <div align="center">
