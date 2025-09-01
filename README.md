@@ -1,38 +1,22 @@
 
 <div align="center"> 
 
-![yay!](https://komarev.com/ghpvc/?username=your-DeuteragonistIllusion&label=sunnies&color=F7B32B&base=1234&style=for-the-badge)
+![yay!](https://komarev.com/ghpvc/?username=your-DeuteragonistIllusion&label=patient&color=F7B32B&base=1234&style=for-the-badge)
 </div>
 
-<div align="center">
-  
-## ![:3](https://watermelon.crd.co/assets/images/gallery22/9ce10986.gif?v=e2e5e274) ![..](https://watermelon.crd.co/assets/images/gallery22/ac77cc1b.gif?v=e2e5e274) ![wee](https://watermelon.crd.co/assets/images/gallery07/cd2287c3.gif?v=e2e5e274) ![XD](https://watermelon.crd.co/assets/images/gallery22/0d2afc31.gif?v=e2e5e274)
-</div>
-
-
-<div align="center">
-  
-## ![Hello!](https://watermelon.crd.co/assets/images/gallery06/f26b9916.gif?v=e2e5e274)　HELLO! Welcome to MY profile!
-</div>
-
-<br>
-
-![A](https://watermelon.crd.co/assets/images/gallery06/4615291a.gif?v=e2e5e274)
-All about me: <br> ♡　My name is Kang! I still often go by Kei/Deutra though! ![B](https://watermelon.crd.co/assets/images/gallery06/d4647fd1.gif?v=e2e5e274) <br> ♡　I go by HE or ANY pronouns! ![C](https://watermelon.crd.co/assets/images/gallery25/44bc3f57.gif?v=e2e5e274) <br> ♡　I am ![D](https://watermelon.crd.co/assets/images/gallery23/02fd363c.jpg?v=e2e5e274) TRANSMASCULINE, but I'm also pretty fine with feminine terms! ![E](https://watermelon.crd.co/assets/images/gallery10/b9734bfe.gif?v=e2e5e274) <br> ♡　I am ![F](https://watermelon.crd.co/assets/images/gallery23/d0a88c7c.jpg?v=e2e5e274) AROACE! ![G](https://watermelon.crd.co/assets/images/gallery06/35850d4a.gif?v=e2e5e274)
-
-<br>
-
-<p align="center">
-  this is currently UNDER CONSTRUCTION! sorry!
+<p align="center"> 
+ts a wip btw heh 
 </p>
-
-<br>
 
 #
 
-<br>
-
 <div align="center">
   
-[![strawpage!](https://watermelon.crd.co/assets/images/gallery07/e5932a66.gif?v=e2e5e274 "Go to Kei's strawpage?!")](https://keidenosine.straw.page)
+<img src="https://github.com/user-attachments/assets/c7fde171-faab-4abc-bcb5-1958f7fbdc11">
 </div>
+
+<p align="left"> <img src="https://github.com/user-attachments/assets/f008869e-26f6-4461-b405-dd80ba0ab40c" width="50" height="50" align="left"> <kbd><br>blaaaaahhh<br>&nbsp;  </kbd> </p> <br> <p align="right"> <img src="https://github.com/user-attachments/assets/58ef9fff-0a9d-4fa2-8f92-0ef851c8e9a1" width="50" height="80" align="right"> <kbd align="right"><br>hey vro. i wanna get to know you!<br>&nbsp;  </kbd></p> <br> <p align="left"> <img src="https://github.com/user-attachments/assets/f008869e-26f6-4461-b405-dd80ba0ab40c" width="50" height="50" align="left"> <kbd><br>bet<br>&nbsp;  </kbd> </p> <br> <p align="left"> <img src="https://github.com/user-attachments/assets/f008869e-26f6-4461-b405-dd80ba0ab40c" width="50" height="50" align="left">  <kbd><br>my names kei/kang<br><br>im 14 wowwwwowow<br><br>i go by he/any prns!<br><br>i am aroace...<br><br>i like the color purple<br><br>i have a quadro: 4glass (3-30-24)<br><br>and i like making new friends:)<br><br>&nbsp;  </kbd> </p> <br> <p align="right"> <img src="https://github.com/user-attachments/assets/58ef9fff-0a9d-4fa2-8f92-0ef851c8e9a1" width="50" height="80" align="right"> <kbd align="right"><br>i didnt ask<br>&nbsp;  </kbd></p> <br> <p align="left"> <p align="left"> <img src="https://github.com/user-attachments/assets/f008869e-26f6-4461-b405-dd80ba0ab40c" width="50" height="50" align="left"> <kbd><br>OH FRICK U<br>&nbsp;  </kbd> </p> <br> <p align="right">
+
+#
+
+<p align="center"> this is super lame sorry </p> <br> <p align="center"> ALSO CREDITS TO SHINMINASE THEYRE REALLY COOL GO CHECK THEM OIT </p>
