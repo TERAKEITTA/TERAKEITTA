@@ -4,9 +4,10 @@
 ![yay!](https://komarev.com/ghpvc/?username=your-DeuteragonistIllusion&label=patient&color=F7B32B&base=1234&style=for-the-badge)
 </div>
 
-<p align="center"> 
-ts a wip btw heh 
-</p>
+<div align="center">
+  
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Story+Script&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=this+is+a+work+in+progress+btww!;i'll+work+on+it+another+time..;hope+you+like+my+profile+hihi" alt="Typing SVG" /></a>
+</div>
 
 #
 
@@ -19,4 +20,4 @@ ts a wip btw heh
 
 #
 
-<p align="center"> this is super lame sorry </p> <br> <p align="center"> ALSO CREDITS TO SHINMINASE THEYRE REALLY COOL GO CHECK THEM OIT </p>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Story+Script&size=15&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=this+is+super+lame+sorry)](https://git.io/typing-svg) <br> [![Typing SVG](https://readme-typing-svg.demolab.com?font=Story+Script&size=15&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=ALSO+CREDITS+TO+USER+SHINMINASE;THEYRE+REALLY+COOL+GO+CHECK+THEM+OUT)](https://git.io/typing-svg)
