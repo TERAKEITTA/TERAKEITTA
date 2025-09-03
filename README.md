@@ -1,12 +1,12 @@
 
 <div align="center"> 
 
-![yay!](https://komarev.com/ghpvc/?username=your-DeuteragonistIllusion&label=patient&color=000000&base=1234&style=for-the-badge)
+![yay!](https://komarev.com/ghpvc/?username=your-DeuteragonistIllusion&label=♡&color=ffbabc&base=1234&style=for-the-badge)
 </div>
 
 <div align="center">
   
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Story+Script&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=this+is+a+work+in+progress+btww!;i'll+work+on+it+another+time..;hope+you+like+my+profile+hihi" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Story+Script&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=this+is+a+work+in+progress+btw....;i'll+work+on+it+another+time..;hope+you+like+my+profile+hihi" alt="Typing SVG" /></a>
 </div>
 
 #
