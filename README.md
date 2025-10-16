@@ -13,6 +13,3 @@
 <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=BBH+Sans+Hegarty&duration=1&color=A90021&center=true&repeat=false&width=435&lines=%22+scary%3F+my+god%2C+you're+divine.+%22" alt="Typing SVG" /></a>
 </p
-<br><br>
-<a href="https://guns.lol/terrierki"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Montserrat+Underline&duration=1&color=A90021&repeat=false&width=100&lines=guns.lol" alt="Typing SVG" /></a></a>　　　　<a href="https://keidenosine.straw.page/"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Montserrat+Underline&duration=1&color=A90021&repeat=false&width=120&lines=strawpage" alt="Typing SVG" /></a></a>　　　　<a href="https://gentlevows.atabook.org/"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Montserrat+Underline&duration=1&color=A90021&repeat=false&width=100&lines=atabook" alt="Typing SVG" /></a></a>
-<br><br>
