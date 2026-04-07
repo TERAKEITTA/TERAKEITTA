@@ -14,7 +14,7 @@
 
 <p align="right"> <img src="https://github.com/user-attachments/assets/66e5e3fc-2be4-4fa2-ae94-eb0859a22128" width="50" height="80" align="right"> <kbd align="right"><br>idiot<br>&nbsp;  </kbd></p>
 
-<p align="left"> <img src="https://github.com/user-attachments/assets/d494acf9-e77d-476e-adf3-da4ca9ec9675" width="50" height="50" align="left"> <kbd><br>Everyday is white girl wednesday when i think of you 😘 <br>&nbsp;  </kbd> </p> 
+<p align="left"> <img src="https://github.com/user-attachments/assets/d494acf9-e77d-476e-adf3-da4ca9ec9675" width="50" height="50" align="left"> <kbd><br>Everyday is white girl wednesday<br>when i think of you 😘 <br>&nbsp;  </kbd> </p> 
 
 <p align="left"> <img src="https://github.com/user-attachments/assets/66e5e3fc-2be4-4fa2-ae94-eb0859a22128" width="50" height="50" align="left"> <kbd><br>my porcelain princess<br>&nbsp;  </kbd> </p>
 
