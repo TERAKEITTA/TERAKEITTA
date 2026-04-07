@@ -23,3 +23,7 @@
 <p align="left"> <img src="https://github.com/user-attachments/assets/d494acf9-e77d-476e-adf3-da4ca9ec9675" width="50" height="50" align="left"> <kbd><br>my milk of magnesia<br>&nbsp;  </kbd> </p> 
 
 ---
+
+<a href="https://gentlevows.atabook.org/">
+leave message. i probably wont reply though. i forgot email. bye.
+
