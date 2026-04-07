@@ -1,4 +1,25 @@
 <div align="center"> 
 <img src="https://komarev.com/ghpvc/?username=your-DeuteragonistIllusion&label=♡&color=00c1b4&base=1234&style=for-the-badge">
 </div>
-<br><br>
+
+---
+
+<p align="left"> <img src="https://github.com/user-attachments/assets/d494acf9-e77d-476e-adf3-da4ca9ec9675" width="50" height="50" align="left"> <kbd><br>Its white girl Wednesday<br>&nbsp;  </kbd> </p> 
+
+<p align="left"> <img src="https://github.com/user-attachments/assets/66e5e3fc-2be4-4fa2-ae94-eb0859a22128" width="50" height="50" align="left"> <kbd><br>Whats good ma<br>&nbsp;  </kbd> </p>
+
+<br> <p align="center"> ⁷ ³⁰ ᴾᴹ </p> <br>
+
+<p align="right"> <img src="https://github.com/user-attachments/assets/6f9d17d7-f552-4fd7-8771-84d77f32a94b" width="50" height="80" align="right"> <kbd align="right"><br>it's tuesday<br>&nbsp;  </kbd></p>
+
+<p align="right"> <img src="https://github.com/user-attachments/assets/66e5e3fc-2be4-4fa2-ae94-eb0859a22128" width="50" height="80" align="right"> <kbd align="right"><br>idiot<br>&nbsp;  </kbd></p>
+
+<p align="left"> <img src="https://github.com/user-attachments/assets/d494acf9-e77d-476e-adf3-da4ca9ec9675" width="50" height="50" align="left"> <kbd><br>Everyday is white girl wednesday when i think of you 😘 <br>&nbsp;  </kbd> </p> 
+
+<p align="left"> <img src="https://github.com/user-attachments/assets/66e5e3fc-2be4-4fa2-ae94-eb0859a22128" width="50" height="50" align="left"> <kbd><br>my porcelain princess<br>&nbsp;  </kbd> </p>
+
+<p align="right"> <img src="https://github.com/user-attachments/assets/6f9d17d7-f552-4fd7-8771-84d77f32a94b" width="50" height="80" align="right"> <kbd align="right"><br>never message me again<br>&nbsp;  </kbd></p>
+
+<p align="left"> <img src="https://github.com/user-attachments/assets/d494acf9-e77d-476e-adf3-da4ca9ec9675" width="50" height="50" align="left"> <kbd><br>my milk of magnesia<br>&nbsp;  </kbd> </p> 
+
+---
