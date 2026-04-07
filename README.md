@@ -24,6 +24,10 @@
 
 ---
 
-<a href="https://gentlevows.atabook.org/">
-leave message. i probably wont reply though. i forgot email. bye.
+<p> <a href="https://gentlevows.atabook.org/"> atabook ok</p>
+leave message. probably wont reply doe. iforgot email. b ye.
+  
+<br>
+reference omg wow so funny <br>
+<img src="https://i.pinimg.com/736x/5e/a3/fe/5ea3fe661a7b07a47a87747302f3e750.jpg" width="270" height="270"> 
 
